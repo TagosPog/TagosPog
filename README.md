@@ -13,4 +13,4 @@
 
 
 
-![](https://media1.tenor.com/m/H2YMB2fDuosAAAAC/jjk-jujutsu-kaisen.gif) ![](https://media1.tenor.com/m/Pw1fmWcVxNkAAAAC/nah-id-win-gojo.gif)
+![](https://media1.tenor.com/m/H2YMB2fDuosAAAAC/jjk-jujutsu-kaisen.gif)
