@@ -10,7 +10,8 @@
 
 - 😄Guitarrista
 
+🔗*Você pode me contatar em:*
 
-
+📫 ts773623@gmail.com
 
 ![](https://media1.tenor.com/m/H2YMB2fDuosAAAAC/jjk-jujutsu-kaisen.gif)
