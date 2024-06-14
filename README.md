@@ -1,16 +1,16 @@
-## Hi there 👋
+## Salve, sou o Thaigo👋
 
-<!--
-**TagosPog/TagosPog** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔭Estudo na E.E Vereador Euclides Miranda
 
-Here are some ideas to get you started:
+- 🌱Quero ser Prof. de Química/Física
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 💬Leio Mangá/Anime
+
+- ⚡Mestre de RPG
+
+- 😄Guitarrista
+
+
+
+
+![](https://media1.tenor.com/m/H2YMB2fDuosAAAAC/jjk-jujutsu-kaisen.gif) ![](https://media1.tenor.com/m/Pw1fmWcVxNkAAAAC/nah-id-win-gojo.gif)
